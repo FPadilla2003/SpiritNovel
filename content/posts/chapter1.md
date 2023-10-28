@@ -73,11 +73,11 @@ He stared, bewildered. “But I’m already here.”
 
 “Come on! Turn around, silly. Live a little bit. I want to surprise you.” Laughing, she tried to spin him around with one hand. He laughed too in response.
 
-“Alright, alright. Look. I’m turning. You’re really insistent.” Dawdling, he spun around to please her. He didn’t know how long it would take. Time always treated him wrong, minutes weighed like hours. This time, however, it didn’t take long. Strange.
+“Alright, alright. Look. I’m turning.” Dawdling, he spun around to please her. He didn’t know how long it would take. Time always treated him wrong, minutes weighed like hours. This time, however, it didn’t take long. Strange.
 
 Finally, she spoke. “Okay, I’m ready. I’m so excited for you to see what I worked so hard on. Go ahead. Turn around now.”
 
-Fren played along, turning towards her again. “Alright, now let’s see what you—“
+Fren played along, turning towards her again. “Alright, now. Let’s see what you—“
 
 The painting was different. No swirling pallet of colors surrounded her face. Instead, it was surrounded with voided black. And where her eyes were… emanated a bright red, dripping down her cheeks onto the edges of the canvas. Blade slashes were abundant around the neck. Her skin a pale gray, as if aged. Pulpy, decaying flesh.
 
